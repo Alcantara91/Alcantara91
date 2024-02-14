@@ -6,7 +6,7 @@
 
 Contato:          
 <a href="https://www.linkedin.com/in/alcantaraflavio/a" target="_blank"><img src="https://img.shields.io/badge/-LinkedIn-%230077B5?style=for-the-badge&logo=linkedin&logoColor=white" target="_blank"></a>       
-📱 Celular: (11) 97877-9372        
+📱 Celular: (11) 95898-5838       
 Pronouns: Ele / He
 
 <br>
